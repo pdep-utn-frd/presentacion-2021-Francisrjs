@@ -10,3 +10,4 @@
 * También me gusa mucho algunos juegos de pc, van algunos de mis favoritos:
     - Rocket league
     - The witcher 3
+* Me gusta mucho cocinar y probar algunas recetas, me gusta innovar en la cocina y probar nuevas recetas.
